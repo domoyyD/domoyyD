@@ -43,7 +43,7 @@ A UI Designer and MFA student passionate about creative design and digital art. 
 - Merging traditional art with digital media
 
 ## 🔗 Connect With Me
-- Behance: https://dribbble.com/JUANHU/shots
+- Dribbble: https://dribbble.com/JUANHU/shots
 
 
 _Crafting visual stories in the digital realm..._
